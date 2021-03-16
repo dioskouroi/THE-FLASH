@@ -1,4 +1,4 @@
-# THE-FLASH / HELP FOR ALL!
+# THE-FLASH / HELP FOR ALL!-Σε κάθε SOS  η Αστραπή, δίνει  λύσεις στη στιγμή!
 ΟΝΟΜΑ ΟΜΑΔΑΣ: THE FLASH
 ΤΙΤΛΟΣ ΕΡΓΟΥ:  HELP FOR ALL- Σε κάθε SOS  η Αστραπή, δίνει  λύσεις στη στιγμή! 
 ΣΤΟΧΟΙ: 
