@@ -1,4 +1,4 @@
-# THE-FLASH ΕΛΛΑΚ 3ος διαγωνισμός
+# THE-FLASH / HELP FOR ALL!
 ΟΝΟΜΑ ΟΜΑΔΑΣ: THE FLASH
 ΤΙΤΛΟΣ ΕΡΓΟΥ:  HELP FOR ALL- Σε κάθε SOS  η Αστραπή, δίνει  λύσεις στη στιγμή! 
 ΣΤΟΧΟΙ: 
