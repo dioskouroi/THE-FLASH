@@ -48,3 +48,6 @@
 	10 μέτρα δισύρματο καλώδιο 0,75 διάμετρο: 0,33Χ10= 3,30ευρώ
 	push button 10mm with wire (carious colors: red/green: 1,30ευρώχ2=2,60ευρώ
 	Χαρτική ύλη: 3ευρώ
+
+Η ΠΡΟΤΑΣΗ ΜΑΣ ΔΙΑΜΟΡΦΩΝΕΤΑΙ!
+http://go.bubbl.us/b7e4ee/e287?/New-Mind-Map
