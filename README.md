@@ -49,5 +49,5 @@
 	push button 10mm with wire (carious colors: red/green: 1,30ευρώχ2=2,60ευρώ
 	Χαρτική ύλη: 3ευρώ
 
-Η ΠΡΟΤΑΣΗ ΜΑΣ ΔΙΑΜΟΡΦΩΝΕΤΑΙ!
+Η ΠΡΟΤΑΣΗ ΜΑΣ ΔΙΑΜΟΡΦΩΘΗΚΕ!
 http://go.bubbl.us/b7e4ee/e287?/New-Mind-Map
